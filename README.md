@@ -1,1 +1,1 @@
-this `README.md` has been left as an exercise to the reader
+for the following proof, we first assume that I have any idea what I am doing
