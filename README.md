@@ -1,1 +1,1 @@
-for the following proof, we first assume that I have any idea what I am doing
+create what you are content with leaving behind
