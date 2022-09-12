@@ -1,1 +1,1 @@
-create what you are content with leaving behind
+'cause I was born a noise machine
